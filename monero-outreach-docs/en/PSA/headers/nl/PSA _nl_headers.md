@@ -14,7 +14,7 @@
    Er zijn 52 weken per jaar waarin je kan iets kan bijleren.
 
 
-- Donnt talk
+- Dont talk
    Zwijgen is goud!
 
 
